@@ -1,4 +1,4 @@
 ## TUGAS UTS
 
-Nama: Muhammad Firdaus Yusdiandara
-NIM : G.111.24.0027
+Nama: Aryan Fajar Wicaksa
+NIM : G.111.22.0066
